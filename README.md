@@ -18,5 +18,5 @@ Trusted By:
 - Hotel Fitness Rooms
 - Corporate Wellness Centers
 
-Learn more at-https://www.doyenwellness.com
+Learn more at-https://doyenwellness.com/gym-wipes/
 
